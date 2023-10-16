@@ -12,3 +12,7 @@ Don't miss out on this opportunity to get your hands on Ethereum at a fraction o
 Buy now and start building your future 🚀!
 
 **TO SHOP NOW PLEASE EMAIL ONIONSITE@TUTA.IO** 👈🏻
+
+https://github.com/DarkWebVendor/1.7-ETHEREUM-ETH-FOR-SALE-499/assets/147255442/46af84df-b6c7-4dc0-bbea-2cfd39e38232
+
+
